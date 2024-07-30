@@ -1,16 +1,13 @@
-## Hi there 👋
+born to die⭐
 
-<!--
-**vickydovaporub/vickydovaporub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é vitória B
 
-Here are some ideas to get you started:
+AMO A LANA DEL REY
+AMO A LAILSLA 
+minha série favorita é sobrenatural e american horror story
+amo o evan peters 
+## voce entrar em contato comigo📘
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+00001126766665sp@al.educacao.sp.gov.br
+![]()
+![image](https://github.com/user-attachments/assets/7de1c8ac-9b2d-4363-8616-3f38cd2ba0a1)
