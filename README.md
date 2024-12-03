@@ -3,7 +3,6 @@ born to die⭐
 meu nome é vitória B
 
 AMO A LANA DEL REY
-AMO A LAILSLA 
 minha série favorita é sobrenatural e american horror story
 amo o evan peters 
 ## voce entrar em contato comigo📘
